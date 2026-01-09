@@ -1,4 +1,4 @@
-## Hi there 👋
+## Namaste From Bharat ! 🙏 I'm Dhyanii .👋
 
 <!--
 **dhyanii-analytics/dhyanii-analytics** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
